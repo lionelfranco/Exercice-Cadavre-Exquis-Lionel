@@ -1,5 +1,7 @@
 C'est l'histoire d'un pinguin qui respirait par les pieds. Un jour il se met debout. Il meurt me direz-vous. Sauf qu'il portait des Crocs.
 Pourquoi la poule travèrse la route ? Pour aller de l'autre côté.
-Qui est le frère d'Albert Einstein ? Franck.
+Qui est le frère d'Albert Einstein ?
 
-[Pourquoi les flamants rose dorment-ils sur une patte ?](http://ca-m-interesse.over-blog.com/article-pourquoi-les-flamands-roses-dorement-ils-sur-une-patte-50785362.html)
+! 37n4nn07é 3ri075ih 3113uQ
+ ...r35n3p n3 i0uq 54p 5i45 3n 3j
+? 5u0v 73
