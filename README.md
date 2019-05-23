@@ -28,5 +28,8 @@ Qui suis-je?
 [Pourquoi les flamants rose dorment-ils sur une patte ?](http://ca-m-interesse.over-blog.com/article-pourquoi-les-flamands-roses-dorement-ils-sur-une-patte-50785362.html)
 
 
+Tu connais l'histoire de Flip Flap la girafe ??? C'est une girafe dans un camion, un pont, et Flip Flap la girafe.
+
+
 No joke to add...
 
